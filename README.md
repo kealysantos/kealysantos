@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... website development
 - 🌱 I’m currently learning ... programming
 - 💞️ I’m looking to collaborate on ... web designing
-- 📫 How to reach me ... my IG is Keaaasantrego
+- 📫 How to reach me ... my snap is kealy_santos
 - 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ... Am no funny
 
